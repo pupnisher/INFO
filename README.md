@@ -5,7 +5,7 @@
 7teen, he/they + it (rarely), male
 argentinian. esp/eng
 
-check out my [strawpage](https://werewolp.straw.page/) for more info.
+check out my [strawpage](https://werewolp.straw.page/) for more and better info.
 
 ___
 
