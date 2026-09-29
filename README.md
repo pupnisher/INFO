@@ -21,3 +21,5 @@ ___
 > **FANDOMS/INT PLZ:** TRIGUN FANS. I BEG. Hannibal. Dorohedoro. Devil May Cry, No home. Jjk and gachiakuta.
 
 ___
+
+![lace](https://file.garden/aWrd5YCB3huK9IQv/IMG_1139.png)
