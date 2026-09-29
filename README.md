@@ -1,18 +1,23 @@
-## 🐾  PUPNIS꯭HE꯭R .ᐟ
+![fox banner](https://file.garden/aWrd5YCB3huK9IQv/800c42bf97c037bd557c999b328e8ddd.jpg)
 
-Helloo! I'm Kael/Zeke. My pronouns are He/Him, although I don't mind They/Them being used on me. I'm not very active in PT, however, I love interacting with new people, even though I'm somewhat shy. Still, please, feel free to approach me! (Preferably through whisper)
+# REIGN / DEEREK
 
-### BYI !
+7teen, he/they + it (rarely), male
+argentinian. esp/eng
 
-Like I mentioned, I'm a bit shy. English is also not my first language, so I might be slow, struggle to respond, or might not understand some words sometimes.
-Also, I sometimes make jokes that might not be for everyone's liking. I might use the F-slur, which I can reclaim, but asides from that I won't use any other ones.
-**Please do not flirt with me.** I am happily in a relationship with my partner, and these kind of comments, even as a joke, easily make me uncomfortable.
+check out my [strawpage](https://werewolp.straw.page/) for more info.
 
-### DNI !
+___
 
-Basic stuff. Racists, homophobes/transphobes, people who make rape/SA jokes, proshippers/darkshippers, lolicons, weirdos.
+> **DNI:** Basic criteria. Racists, homophobes, transphobes, zoos, furry antis, MAGA, darkshippers, problematic media/ppl supporters, etc.
+-15 / +21 DNI, thanks.
 
-### PLEASE INTERACT !
 
-**TRIGUN FANS.** PLEASE. I BEG YOU.
-JJK, Chainsaw Man, Gachiakuta fans too! Or just anyone in general.
+> **BYI:** I'm shy and awkward and not good at socializing (don't let it stop you from interacting as long as it's with caution tho). huge chud.
+> my humor might not be for everyone. I make sensitive jokes (sh, suicide, sex) and occasionally use slurs which **i can reclaim.**
+
+🥛
+
+> **FANDOMS/INT PLZ:** TRIGUN FANS. I BEG. Hannibal. Dorohedoro. Devil May Cry, No home. Jjk and gachiakuta.
+
+___
