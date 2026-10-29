@@ -18,7 +18,7 @@ ___
 
 🥛
 
-> **FANDOMS/INT PLZ:** TRIGUN FANS. I BEG. Hannibal. Dorohedoro. Devil May Cry, No home. Jjk and gachiakuta.
+> **FANDOMS/INT PLZ:** TRIGUN FANS. I BEG. Hannibal. Dorohedoro. Devil May Cry, No home. Supernatural.
 
 ___
 
