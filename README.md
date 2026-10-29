@@ -9,7 +9,7 @@ check out my [strawpage](https://werewolp.straw.page/) for more and better info.
 
 ___
 
-> **DNI:** Basic criteria. Racists, homophobes, transphobes, zoos, furry antis, MAGA, darkshippers, problematic media/ppl supporters, etc.
+> **DNI:** Basic criteria. Racists, homophobes, transphobes, zoos, incest, furry antis, MAGA, darkshippers, problematic media/ppl supporters, etc.
 -15 / +21 DNI, thanks.
 
 
